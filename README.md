@@ -1,1 +1,1 @@
-# Informatik-Psychose
+# Informatik
